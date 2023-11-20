@@ -1,0 +1,5 @@
+# school-project
+THIS PROJECT IS CREATED BY
+- PRATHYUSHA AGGU
+-     &
+-  DHEERAJ KURMA
